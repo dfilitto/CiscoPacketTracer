@@ -11,3 +11,5 @@ Vamos juntos?
 Te espero nas aulas!
 
 Abraços.
+
+https://www.youtube.com/playlist?list=PLfvOpw8k80Wrf9Zv85rU6BB7-Ar0NFGmF
